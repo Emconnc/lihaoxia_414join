@@ -4,3 +4,4 @@ I love life and I love code.My life is rich ang colorful,I like watching TV play
 I want to join you to learn a lot of professional computer knowledge,access to many competition<br>
 channels and opportunities.I need to improve my ability ang exercise my thinking.Maybe my ability <br>
 is not outstanging,but I want to try to make myself better.I  hopeI can be recognized. 
+！1【image】https://github.com/Emconnc/Emconnc/upload/main
