@@ -5,4 +5,4 @@ I want to join you to learn a lot of professional computer knowledge,access to m
 channels and opportunities.I need to improve my ability ang exercise my thinking.Maybe my ability <br>
 is not outstanging,but I want to try to make myself better.I  hopeI can be recognized. <br>
 
-![image](https://github.com/Emconnc/lihaoxia/upload)
+![image](https://github.com/Emconnc/lihaoxia/blob/main/%E5%8C%97%E5%8D%B0_20220920134337.jpg)
